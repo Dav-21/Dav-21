@@ -1,4 +1,4 @@
-![nkar](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRuwVUuIIhpDbDn-p4HX3kNqprmvU7OaDUoMA&s)  
+![nkar](https://images.wallpapersden.com/image/download/programming-coding-language_bGhpbm6UmZqaraWkpJRmbmdlrWZlbWU.jpg)  
 ## Hi there 👋
 Hi..  
 My name is Davit,  
